@@ -22,7 +22,7 @@ I value reader participation and feedback. Feel free to comment, share your expe
 
 Thanks for visiting! I hope you find valuable and inspiring content here.
 
-For inquiries, contact me through [Your Contact, e.g., email or social media].
+For inquiries, contact me through by [email](mailto:ninja.vi98@gmail.com) or [LinkedIn](https://www.linkedin.com/in/restu-dwi-putro-343b10267/).
 
 Happy reading!
 
